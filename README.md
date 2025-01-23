@@ -1,1 +1,1 @@
-# Mizo-awngUpa
+# MizoṭawngUpa
